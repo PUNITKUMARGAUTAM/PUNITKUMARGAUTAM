@@ -1,4 +1,6 @@
 - 👋 Hi, I’m @PUNITKUMARGAUTAM
+![punit](https://user-images.githubusercontent.com/82086530/133032356-40e56a52-ca91-41d8-926a-80c9c6178e39.jpg)
+
 
 
 
